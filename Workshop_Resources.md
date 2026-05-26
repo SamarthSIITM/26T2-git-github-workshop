@@ -16,13 +16,13 @@
 ## Day-2
 
 - **Slide Link:**  
-  _To be updated_
+  https://docs.google.com/presentation/d/14gkKsAOLO_iL7zQPePHoxnhDfCaMNvnj_pyJ0to_Ul4/edit?usp=sharing
 
 - **Recording Link:**  
   _To be updated_
 
 - **Task-1:**  
-  _To be updated_
+  https://drive.google.com/file/d/1aLDa5Vq7BtbJZxbNCTDMDTSNOfEIf5Ee/view?usp=sharing
 
 - **Task-2:**  
-  _To be updated_
+  https://drive.google.com/file/d/1Jv1B9iny-pm1DCNq6cOIBqb2ZZmOUWSm/view?usp=sharing
