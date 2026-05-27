@@ -19,7 +19,7 @@
   https://docs.google.com/presentation/d/14gkKsAOLO_iL7zQPePHoxnhDfCaMNvnj_pyJ0to_Ul4/edit?usp=sharing
 
 - **Recording Link:**  
-  _To be updated_
+  https://drive.google.com/file/d/1QuyCiWpEbTUkunKUeUwzPytxKR_ZLgyM/view?usp=drivesdk
 
 - **Task-1:**  
   https://drive.google.com/file/d/1aLDa5Vq7BtbJZxbNCTDMDTSNOfEIf5Ee/view?usp=sharing
